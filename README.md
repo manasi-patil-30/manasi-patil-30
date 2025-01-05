@@ -15,7 +15,7 @@
 **Connect with me:**                                                                                        
 
 
-![image](https://github.com/user-attachments/assets/927e8da1-382e-462e-bc6e-d837d61395c5)
+https://www.linkedin.com/in/manasi-patil30
 
 
 
